@@ -1,5 +1,3 @@
-### Hi there 👋
-
 - ⚔️ war
 - 💣 war never changes
 - 🍆 but sometimes it does change
